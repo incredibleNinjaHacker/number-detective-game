@@ -1,0 +1,2 @@
+# number-detective-game
+Awww....I am bored to death!!!!!! I wish I can play a simple number game without having wifi.....Huh??? Number detective game???? Sounds fun!!! If you like guessing and like to play with numbers, this project will be your favorite game!!! Try to play it with your friends , who guessed it faster gets to spank or do something bad to the loser!Have fun!!! Now if you excuse me, I am going to try to win my friend!!!
